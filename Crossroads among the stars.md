@@ -70,7 +70,7 @@ Thereafter, the Taiidan Empire was overthrown and the Republic of Taiidan was fo
 
 
 
-## 5. Hiigara Hegemonism
+## 5. Hiigaran Hegemonism
 
 Karan’s dormancy causes a bit of confusion to Hiigarans, but because of the appearance of a self-proclaimed electronic soul of a Progenitor named "Celestial Star" and the lessons coming from the constant suffering since the Homeworld War, the Hiigarans quickly restore order. With the victory of the legendary "War of the End", and becoming the legendary "Sajuuk-khar - the Chosen One", the self-satisfaction and pride of Hiigarans begin to swell, and they begin to declare that " The Age of S'jet has begun".
 
