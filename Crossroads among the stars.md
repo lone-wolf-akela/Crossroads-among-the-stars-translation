@@ -45,3 +45,103 @@ They happened to find one of the three hyperspace cores of Sajuuk, and mounted i
 ## Bentusi the Guardian
 
 Since then, more than two thousand years have passed.
+
+
+
+## The Vaygr and Makaan
+
+
+
+## Hiigara Hegemonism
+
+
+
+## Tmat Back to Stage
+
+
+
+## Souls of the Progenitors 
+
+
+
+## The Army of Tmat
+
+
+
+## Actions of Taiidani (Part I)
+
+
+
+## Actions of Taiidani (Part II)
+
+
+
+## Actions of Kadeshi (Part I)
+
+
+
+## Actions of Kadeshi (Part II)
+
+
+
+## Actions of Turanic Raiders
+
+
+
+## Actions of Vaygr
+
+
+
+## The Hacker
+
+
+
+## Jakuul
+
+
+
+## The Treasure of Bentusi
+
+
+
+## The Only Hope
+
+
+
+## Awakening from the Dream
+
+
+
+## The Mantis Stalking the Cicada
+
+
+
+## The Bloody Battle of Million Seconds
+
+
+
+## The Return of Bentusi (Part I)
+
+
+
+## The Return of Bentusi (Part II)
+
+
+
+## Attitudes towards AI
+
+
+
+## The Plan Behind the Plan
+
+
+
+## Tmat civil war
+
+
+
+## True Power of the Sajuuk
+
+
+
+## The End Time
