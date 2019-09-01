@@ -42,9 +42,27 @@ With the help of the Progenitors, the Bentusi eventually drove away the Tmatians
 
 They happened to find one of the three hyperspace cores of Sajuuk, and mounted it on the Bentus. 
 
+
+
 ## Bentusi the Guardian
 
 Since then, more than two thousand years have passed.
+
+The descendants of the Progenitors had forgotten their previous civilization. They had gone through the ages of blood, slavery and feudalism, muskets and steam, gas engines and electronics on their own planet, or they had been driving their ancestors' high-tech machines with ignorant minds in spaceships and space stations. Sajuuk became their legendary god or demon (depending on which Progenitors faction they were descended from); the three hyperspace cores to rediscover the Progenitor civilization became "the one who collects the three holy things will become the Sajuuk-Khar - the Chosen One"; the restart of the battleship of Sajuuk also became the myth of "Sajuuk will return to the world". It was believed by some anti-Sajuuk Progenitors that Sajuuk hid his warship to launch a strategic counter-attack and defeat them, so their descendants have formed such a legend that "Sajuuk's return will bring the doomsday and catastrophes".
+
+During this period, the Bentusi adhered to the principles of the Progenitors and did not contact them.
+
+Until one day, the descendants of the Progenitors on planets invented their own rockets and flew into the space; the descendants of the Progenitors on spaceships no longer treat the ship as a fetich and started inventing and creating by themselves. Bentusi then began visiting them one by one, bringing back the knowledge of hyperspace they learned from the Progenitors. Forgetting the history of their ancestors, people just thought the Bentusi was an high-tech alien race, and this historical event is called "Bentusi Arrival".
+
+Later, the descendants of the Progenitors returned to the galaxy as "different civilizations".
+
+For 500 years, people lived in peace under the glory of Bentusi. But with the development of technology and the enlargement of people’s vision, they started an uprising against Bentusi. This part of history is detailed in the appendix of the official Homeworld 2 booklet.
+
+The descendants of the Progenitors thought each other as aliens and different species and civilizations. They call themselves Taiidani, Hiigarans, Charazers, Fronians, Red-Rings, and so on.
+
+After the Hiigarans were exiled to Kharak, what happened was the plot of Homeworld 1. The second hyperspace core was discovered on Kharak, and the Hiigarans returned to their homeworld, Hiigara.
+
+Thereafter, the Taiidan Empire was overthrown and the Republic of Taiidan was founded. But the greedy Galactic Council had always wanted to completely destroy the Titan world, and the Hiigrans also wanted to take back the territory that the Titans had taken from their ancestors after knowing the history of their ancestral empire. Later, the cataclysm of beast broke out. Although the whole galaxy finally survived the cataclysm, the political situation became worse and worse. Finally, the war broke out, which was called "the Dust War". In the Dust War, the Galactic Council was disintegrated, and every country was at war with each other. People recall the old myth and also call the Dust War "War of the End Time", which is also considered the Galaxy War III. (the Galaxy War I was the war when every race was trying to expand but was suppressed by the Bentusi by force. Followed by Galaxy War I was a period of peace for hundreds of years. Then came the Galaxy War II, which is also called "Pan-Galaxy Uprising", during which several major race launched wars at the same time in different parts of the Galaxy. After this war, Bentusi’s control over the galaxy was loosened; the Galactic Council was founded and Bentusi’s influence over the galaxy was limited in commerce.) The Hiigrans took advantage of this opportunity and began to devour the space of the Taiidani world. The political structure of Taiidani Republic, which was never stabilized, had been shaking gradually and finally collapsed. At this time, a minority of ethnic group in Taiidani territory called Vaygr appeared on the stage of history under the slogan of "Unifying the Taiidani World".
 
 
 
