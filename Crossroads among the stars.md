@@ -1,6 +1,6 @@
 # Background setting of "Crossroads among the stars"
 
-## The Past of the Progenitors
+## 1. The Past of the Progenitors
 
 The story begins in the ancient past of the galaxy, so old that no one in Bentus can remember.
 
@@ -26,7 +26,7 @@ As the Progenitors civil war became more and more fierce, some Progenitors began
 
 
 
-## Preparation for the Reconstruction of Civilization
+## 2. Preparation for the Reconstruction of Civilization
 
 A man named Sajuuk predicted that after a long and devastating civil war, the Progenitor civilization would be destroyed, and it was likely that the survivors would return to a very low level of civilization. In order to rebuild the Progenitor civilization after the war, he organized a group of like-minded people to start a civilization rescue plan called "Spark". According to the plan, they hid the battleship of Sajuuk in the depths of Balcora, then stored information about the Progenitor civilization into its engine system - the three hyperspace cores, and then hid them in three different locations in the galaxy. If future generations can redevelop space technology and find these hyperspace cores, they will be able to get part of the records and lessons from the Progenitors. And who collects the three hyperspace cores will be able to restart the battleship of Sajuuk and obtain complete knowledge of the Progenitors’ history, technology and wisdom from the ship's database. On their way to Balcora, they kept sending their crew members down to any planet suitable for human habitation in the hope that they could reproduce on these planets, escape the war and rebuild civilization.
 
@@ -44,7 +44,7 @@ They happened to find one of the three hyperspace cores of Sajuuk, and mounted i
 
 
 
-## Bentusi the Guardian
+## 3. Bentusi the Guardian
 
 Since then, more than two thousand years have passed.
 
@@ -66,100 +66,107 @@ Thereafter, the Taiidan Empire was overthrown and the Republic of Taiidan was fo
 
 
 
-## The Vaygr and Makaan
+## 4. The Vaygr and Makaan
 
 
 
-## Hiigara Hegemonism
+## 5. Hiigara Hegemonism
 
+Karan’s dormancy caused a bit of confusion to Hiigarans, but because of the appearance of a self-proclaimed electronic soul of a Progenitor named "Celestial Star" and the lessons coming from the constant suffering since the Homeworld War, the Hiigaran quickly restored order. With the victory of the legendary " War of the End", and becoming the legendary "Sajuuk-khar - the Chosen One", The self-satisfaction and pride of Hiigarans began to swell, and they began to declare that " The Age of S'jet has begun".
 
+When they defeated the Vaygr, Hiigaran had the highest prestige in the galaxy. Many races and nations stood beside Hiigaran in the hope of bringing peace to the galaxy. However, as time went on, the "sense of obligation" in Hiigarans’ mind, which had been at a normal level, expanded to a "sense of superiority". With the Celestial Star stirring up the flames, the Hiigarans began to think that all other races’s inability to resist the Vaygr could prove that Hiigaran civilization and culture are the best in the galaxy. All the myth are realized in their hands, so the galaxy should be unified under the leadership of Hiigaran. All “good” races in the galaxy should follow the trend, learn from Hiigaran culture, act in accordance with Hiigaran code of conduct, and enter the international order advocated by Hiigarans. Therefore, the Greate Unified Galaxy Organization was established, whose purpose is to assimilate the whole galaxy with Hiigaran life style and ideas.
 
-## Tmat Back to Stage
+Inevitably, the Hiigarans began to demand that other races adopt Hiigaran way of thinking, moral standards and codes of conduct, otherwise they would be reprimanded as dissidents, scoundrels and villains.
 
+As a result, Hiigarans’s image among the various races in the galaxy began to deteriorate, and Hiigarans’s action to unify the galaxy was greatly hindered. More and more frequently, they used force to oppress others to yield to them. This kind of imperialist hegemonism aroused people's disgust, which was used by the mysterious " Progenitor souls" in different nations to incite dissatisfaction with Hiigara, and finally turned into a revolt. Under the interpretation of the Celestial Star, the rebellion was regarded by the Hiigarans as an alien nationalism ideology and was further suppressed, which further intensified the contradictions.
 
 
-## Souls of the Progenitors 
+## 6. Tmat Back to Stage
 
 
 
-## The Army of Tmat
+## 7. Souls of the Progenitors 
 
 
 
-## Actions of Taiidani (Part I)
+## 8. The Army of Tmat
 
 
 
-## Actions of Taiidani (Part II)
+## 9. Actions of Taiidani (Part I)
 
 
 
-## Actions of Kadeshi (Part I)
+## 10. Actions of Taiidani (Part II)
 
 
 
-## Actions of Kadeshi (Part II)
+## 11. Actions of Kadeshi (Part I)
 
 
 
-## Actions of Turanic Raiders
+## 12. Actions of Kadeshi (Part II)
 
 
 
-## Actions of Vaygr
+## 13. Actions of Turanic Raiders
 
 
 
-## The Hacker
+## 14. Actions of Vaygr
 
 
 
-## Jakuul
+## 15. The Hacker
 
 
 
-## The Treasure of Bentusi
+## 16. Jakuul
 
 
 
-## The Only Hope
+## 17. The Treasure of Bentusi
 
 
 
-## Awakening from the Dream
+## 18. The Only Hope
 
 
 
-## The Mantis Stalking the Cicada
+## 19. Awakening from the Dream
 
 
 
-## The Bloody Battle of Million Seconds
+## 20. The Mantis Stalking the Cicada
 
 
 
-## The Return of Bentusi (Part I)
+## 21. The Bloody Battle of Million Seconds
 
 
 
-## The Return of Bentusi (Part II)
+## 22. The Return of Bentusi (Part I)
 
 
 
-## Attitudes towards AI
+## 23. The Return of Bentusi (Part II)
 
 
 
-## The Plan Behind the Plan
+## 24. Attitudes towards AI
 
 
 
-## Tmat civil war
+## 25. The Plan Behind the Plan
 
 
 
-## True Power of the Sajuuk
+## 26. Tmat civil war
 
 
 
-## The End Time
+## 27. True Power of the Sajuuk
+
+
+
+## 28. The End Time
