@@ -201,13 +201,35 @@ However, what made the Organization heartbreak is that the Alliance refused to a
 
 
 
-## 21. The Bloody Battle of Million Seconds
+## 21. The Bloody Million-Second Battle
 
 
 
 ## 22. The Return of Bentusi (Part I)
 
+In the battle of all descendants of Progenitors in the galaxy united against the powerful invasion of TMAT, the Taiidani surpassed Hiigarans and the Alliance and became the core force. This is because they have been onlookers during the War of Sibling Rivalry. They had been developing silently and preserving their power; and because they had been keeping away from the international politics, and Queen Scandinale intuitively refused the help of those "Progenitors souls", less electronic lives had infiltrated into Taiidani military and government departments. Thus, after the explosion of "bombs" and "embryos", the Taiidani army had the least "mutinies" in the galaxy.
 
+In the Bloody Million-Second Battle, the Taiidani were in the bloodiest parts of the battlefield - the perimeter of the Sajuuk and the middle defense line. After decades of endurance and humiliation, the heroism and courage of the ancient Eight-Banner Taiidani Fleets have reappeared in today's Taiidani. The Taiidani had bought much time in the face of the more technologically advanced TMATs. However, human's initiative is not omnipotent, and the defense line of Taiidan was on the edge of collapse. The innermost defense line was established by the remnants of the Organization and the Alliance. If the TMATs broke through here, they could only launch kamikaze attacks.
+
+At this critical moment, the TMATs suddenly suspended their attacks. Taiidani, the Organization and the Alliance immediately re-organized their defense line, and at the same time sent scouts to the back of enemy to see what happened. The mystery was solved: a Turanic Raiders fleet were attacking TMATs on the other side of the battlefield. But it was not enough to hold back TMATs if it was just the Raiders. And soon people found the answer of the mystery behind the mystery: followed by the Raiders was a fleet of Bentusi!
+
+These Bentusi ships were not the fake ones made by the TMATs, but authentic and genuine Bentusi vessels! And unlike the Bentusi ships which people had been familiar with,  they all have offensive weapons!
+
+Here's how the story began:
+
+As early as more than a hundred years ago, out of fear of the Beast, the Bentusi had planned to move the whole race into other galaxies. After the leaving of the first few ships, the Kuun-Lan fleet of Kiith Somtaaw persuaded the Bentusi to change their mind to stay in the galaxy and fight against the Beast together.
+
+Even the Progenitors who had such advanced technology could not jump to another galaxy directly. For thousands of years, Bentusi had been collecting the high-tech relics of the Progenitors, which had brought them some technological progress, but they were still far from the level of the Progenitors. Thus the jump gate Bentusi wanted to use to jump to other galaxies was a rather immature product. Although it could provide enough energy to let ships jump far enough, people could not control the jump destination at all. That is to say, whether the other side of the gate was another galaxy or the void in the universe was completely uncontrollable. If it weren't because Bentusi was frightened out of their minds by the Beast, they would never try to use such a device.
+
+That is to say, the first few Bentusi ships could not come back, and where they went was unknown. A group of Bentusi volunteered to enter the gate to search for the missing ships. The volunteers jumped away, and the other Bentusi did not expect to see them back. In the War of the End Time, the Bentusi in our Galaxy became extinct.
+
+Fortunately, the volunteers jumped into another galaxy and found several missing ships. Although there were still some ships missing, the volunteers were still happy.
+
+These Bentusi planned to go back to our galaxy. When the volunteers set out from our galaxy, they brought with some outstanding scientists and engineers, in order to find a way home after finding their compatriots. 
+
+The built another stargate. Though there was no guarantee that they would be lucky enough to jump back home immediately, they decided to bet with probability. But they couldn't find enough energy to launch it. They thought of black holes. The fleet went to the core of that galaxy and ready to use the energy of the black holes there to launch the gate. However, after reaching the center of the galaxy, they found some huge debris of space ships that could rival the remains of the Progenitors.
+
+Strangely, the wreckage was painted in a typical Turanic Raiders style. After a preliminary survey, the oddity turned into shock: the wreckage, apart from its different appearance, had all the same technical standards as the early technology of the Progenitors!
 
 ## 23. The Return of Bentusi (Part II)
 
@@ -227,7 +249,7 @@ However, what made the Organization heartbreak is that the Alliance refused to a
 
 ## 27. True Power of the Sajuuk (Not fully translated yet)
 
-The one million seconds countdown clock on the bridge of the Sajuuk finally returned to zero. Karan S'jet, a miraculous woman who really became "the Chosen One" after numerous mathematical variables, confusing interaction, restriction and interference in history, ended the mysterious journey of quantum state and opened her eyes.
+The one million seconds countdown clock on the bridge of the Sajuuk finally returned to zero. Karan S'jet, the miraculous woman who really became "the Chosen One" after numerous and disorderly interactions, transformations and interferences among masses of mathematical variables in history, ended the mysterious journey of quantum state and opened her eyes.
 
 People and Karan did not have time to greet each other, or even discuss the battle plan. Karan took all the command of Sajuuk and began to rescue the human from crisis.
 
