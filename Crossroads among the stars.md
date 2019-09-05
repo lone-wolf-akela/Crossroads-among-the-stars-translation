@@ -66,9 +66,9 @@ Thereafter, the Taiidan Empire was overthrown and the Republic of Taiidan was fo
 
 
 
-## 4. The Vaygr and Makaan
+## 4. The Vaygr and Makaan [Not fully translated yet]
 
-
+Makaan is actually a progenitor soul, and the only one survived from "Soul Project". Found by the Vaygr by accident, he then quickly became the Vaygr Warlord and found the third hyperspace core with the help of his knowledge. His plan is to quickly take all three cores by force, so he attacked Bentusi and Hiigaran, which is the story of Homeworld2. Before Makaan was killed at Balcora, he told Karan part of the progenitors history, his real identity and the threat of TMATs. After Homeworld2's story was over, Karan fall into dormancy, her quantized consciousness began to study the knowledge from Sajuuk's database.
 
 ## 5. Hiigaran Hegemonism
 
@@ -81,9 +81,9 @@ Inevitably, the Hiigarans began to demand that other races should adopt Hiigaran
 As a result, Hiigarans’ image among the various races in the galaxy began to deteriorate, and Hiigarans’ action to unify the galaxy was greatly hindered. More and more frequently, they used force to oppress others to yield to them. This kind of imperialist hegemonism aroused people's disgust, which was used by the mysterious "Progenitor souls" in different nations to incite dissatisfaction with Hiigara, and finally turned into a revolt. Under the interpretation of the Celestial Star, the rebellion was regarded by the Hiigarans as an alien nationalism ideology and was further suppressed, which further intensified the contradictions.
 
 
-## 6. TMAT Back to Stage
+## 6. TMAT Back to Stage [Not fully translated yet]
 
-
+Due to the Eye of Aarran being closed, a crazy decision was made by TMATs: jump through the abnormal zone of cosmic constants. They put their brain under the control of artificial intelligence. After thousands of years of unremitting efforts, several spacecrafts finally passed through. The TMATs' electronic lives onboard began to build ships that imitating the style of progenitor and Bentusi, waiting for the opportunity to open The Eye of Aarran when the time comes...
 
 ## 7. Souls of the Progenitors 
 
@@ -233,7 +233,41 @@ Strangely, the wreckage was painted in a typical Turanic Raiders style. After a 
 
 ## 23. The Return of Bentusi (Part II)
 
+Out of respect and curiosity for the Progenitors, the Bentusi decided to settle down for a while and take a closer look at the wreckage and tried to find why they had become wreckage.
 
+Repeated investigations confirmed that these ships must have a very close relationship with the Progenitors. But they couldn't know what had happened to such a huge fleet. The Bentusi also found some relics on the surrounding large debris, in which there were signs of both high and low technology, just like those Progenitor relics where crews in space ships had survived the collapse of civilization but had retrograded to primitive society. According to the Bentusi's analysis, these compatriots of Progenitors had also experienced a great retrogression of civilization, so their descendants left on the space ships had retrograded to primitive civilization. But the evidence of activity of this primitive civilization had stopped after a period of time. Some traces of them activation pointed to the black holes in the center of this galaxy.
+
+Careful astronomical analyses showed that there are several very narrow wormholes in this black hole cluster.
+
+In general, the Bentusi's guess was not far from the truth. These Raider-style ships did come from the same place as the Progenitors. They were both space exploration fleets, but with different destinations. This fleet came here through the central wormhole of the galaxy. (In a sense, the Eye of Aarran is also an artificial wormhole.) However, some kind of disasters had happened to them, and their civilization collapsed and retrograded to primitive society. For their descendants, the history of coming here from their homeland through the wormhole had become a myth. The harsh environment here stimulated them to venture back to the wormhole, trying to find a way back to the home in their legend. But they did not have the technology to explore wormholes, and their only clues were some vague descriptions in the legend. Most of their expedition fleets had jumped to nowhere, but one of them jumped out of a tiny wormhole in the Turanic region in our galaxy, and had been called the Turanic Raiders since then.
+
+The Bentusi began to believe that one of these wormholes must lead to our galaxy, and they started trying. To avoid separation from other fleet members again, they kept exploring together and examined the wormholes one by one. They had been to many different galaxies, but none of them was our galaxy, and they didn't meet any intelligent being. They traveled through these new galaxies, came back through the same wormhole and then tried the next wormhole. In this way, it took them more than a hundred years to return to our galaxy.
+
+The Bentusi fleet jumped out in the Turanic region. After finding out where they jumped out, they confirmed their guess - they solved the mystery of the origin of the Turanic Raiders!
+
+However, the joy of returning home did not last long. The Bentusi found their race had been extinct here, and the cruel TMAT, whom they had not seen for a long time, were attacking the descendants of the Progenitors. (This is the time when TMAT just broke with Hiigarans and began their conquering of the whole galaxy.)
+
+The Turanic Raiders found these Bentusi. The Bentusi told them the long-lost history of their origins with detailed archaeological data. In modern times, there had been two different parties of Turanic people: one of them thought they were not a race of this galaxy, and should not participate much in the politics of the galaxy, and this is the guiding ideology of the inner-Turanic; the other party thought since they had already forgotten where their home was and had no way to go home, they should just live here and treat themselves as a member of the society of the galaxy, and this is the guiding ideology of the outer-Turanic. Except for the previous invasion to the Taiidan territory and the later self-defense against the Vaygr, they tried their best to stay away from galactic affairs, especially during the War of Sibling Rivalry. However, the evidence brought back by the Bentusi made it clear that they are not really "raiders", but brothers with the same blood of the other races in this galaxy.
+
+The pride of learning about their ancient history excited all the Turanic people, and they wanted to go out and fight alongside their brothers immediately. But the Bentusi told them to put it on hold.
+
+This was not because the Bentusi would forgive the crimes of TMAT. On the contrary, their philosophy of "adherence" to the descendants of Progenitors had been their core code of conduct for thousands of years, for which they did not even care about their own survival. However, the power of Turanic people alone would not solve any problems. Although Bentusi's technology was comparable to, or even slightly beyond, that of TMAT, none of their ships had offensive weapons. Their defensive weapons were useful facing opponent of lower technology, but almost useless to someone like TMAT.
+
+As a result, the Bentusi made their decision: they decided to break their promise of never using weapons again. Four thousand years ago, they solemnly vowed never to use weapons again because their weapons had deeply hurt the descendants of Progenitors (that was when they defeat the old Hiigaran Empire and caused the Kushan been exiled by the Taiidani). But today, to defend the blood of Progenitors, they were willing to break their vows! The reason why they stop the immediate actions of Turanic people is that they were equipping their ships with weapons that had not been touched in thousands of years, and they were also helping Turanic people to modify their ships with high-tech devices.
+
+Seeing that the Organization and the Alliance were on the edge of death under the attack of the TMATs and the rebels, the Bentusi had to finish their equipping of weapons hastily, and began their attacks from the region of Turanic.
+
+The surprise attack caused some chaos for the TMATs at the beginning, and the return of the real Bentusi made the TMATs uneasy. But as the TMAT fleet turned back and began to battle with Bentusi, the Bentusi began to fail because of their unfinished weapon systems.
+
+In spite of the increasing pressure, the Bentusi were fighting fearlessly. The hostility between the two races from nearly ten thousand years ago made TMATs use up all their main forces on the siege of the Bentusi, and even highest flagship of TMAT named the Black Blood of TMAT, which just moved to the battlefield from the companion galaxy, had joined the siege.
+
+However, no matter how brave and unyielding a lonely tiger is, it can not withstand the attacks of a team of wolves. Three thousand seconds before Karen woke up, the last Bentusi ship in the universe collided with the Black Blood of TMAT and died with the imperator of their foe.
+
+Bentusi, the kind native race of the galaxy, had been keeping their adherence and protecting all races in the galaxy for thousands of years, all driven by their thankfulness to their friend and teacher - the Progenitors. When the last Bentusi lost their life in the explosion, did they feel satisfied with the selfless history of their race? Did they blame themself for failing to stop the TMAT completely? Was they feeling happy to be able to die with their enemy, or worrying about whether the civilization of Progenitors would finally survive this ordeal? 
+
+Once upon a time, it was thought that the Bentusi in this galaxy was extinct. Now, there is no such race in the whole universe...　　
+
+Ironically, however, the end of the race of Bentusi, was also the opening of the finale of another native race - the TMAT.　
 
 ## 24. Attitudes towards AI
 
