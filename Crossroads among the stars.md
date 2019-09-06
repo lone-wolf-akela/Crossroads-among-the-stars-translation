@@ -85,9 +85,9 @@ As a result, Hiigarans’ image among the various races in the galaxy began to d
 
 Due to the Eye of Aarran being closed, a crazy decision was made by TMATs: jump through the abnormal zone of cosmic constants. They put their brain under the control of artificial intelligence. After thousands of years of unremitting efforts, several spacecrafts finally passed through. The TMATs' electronic lives onboard began to build ships that imitating the style of progenitor and Bentusi, waiting for the opportunity to open The Eye of Aarran when the time comes...
 
-## 7. Souls of the Progenitors 
+## 7. Souls of the Progenitors [Not fully translated yet]
 
-
+After Makaan died, the TMATs' electronic lives began to take actions unscrupulously, entering the leadership of various countries by disguising themselves as progenitor souls. They collude with each other to provoke great divisions among those countries, because no progenitor souls in this galaxy could pierce them anymore. This indirectly led to the formation of the Galaxy Rescue Alliance among the countries opposed to Hiigara. At this time, electronic lives take out the imitated progenitor and Bentusi style ships, pretending to be the progenitor warships which was left over from ancient times and Bentusi who fled to other galaxies during the Cataclysm of the Beast, providing further support for the Galaxy Rescue Alliance.
 
 ## 8. The Army of TMAT
 
@@ -107,19 +107,21 @@ The arrival of TMAT gave the Great Unified Galaxy Organization a chance. The TMA
 
 The blood of the Progenitors was dyeing the stars red...
 
-## 9. Actions of Taiidani (Part I)
+## 9. Actions of Taiidani (Part I) [Not fully translated yet]
+
+Before the story of Homeworld2, the territory and strength of the Taiidan Republic had been gradually eroded by Hiigaran and Turanic. On the other hand, the Imperial Taiidan, led by Princess Scandina, joined the army of Vaygr, hoping to seek a space for the revival of Taiidan with Vaygr's military power. Scandina volunteered to deal with Turanic Raiders and Kadashi, who were the headaches of the Vaygr. During this period of time, she exerted diplomatic skills, through several battles to deter Turanic Raiders, but also indirectly saved a Kadeshi Mothership and won trust and favor of the Kadeshi.
+
+After Vaygr defeated, Scandina lowered her stature and joined the Great Unified Galaxy Organization on her own initiative, avoiding the fate of being bloody liquidated. Later, when the war broke out between the Great Unified Galaxy Organization and the Galaxy Rescue Alliance, Scandina declared that Taiidan remained neutral, trying to make both sides suffer, so that she could enjoy the benefits. 
+
+## 10. Actions of Taiidani (Part II) [Not fully translated yet]
 
 
 
-## 10. Actions of Taiidani (Part II)
+## 11. Actions of Kadeshi (Part I) [Not fully translated yet]
 
+Until ALF 60s, the Kadashi had been hiding in the nebula and surviving through robbing ships past by. The Hiigaran had never forgotten the Kadashi. After all, "compatriots" is a very precious word for Hiigarans. Therefore, Hiigara had always planned to persuade Kadesh to form a unified country together. After ALF 60s, Hiigara changed from a strategic defense against Taiidan to a strategic offensive. The Hiigarans who freed up their hands eventually sent messengers on a large scale to contact with the Kadeshi.
 
-
-## 11. Actions of Kadeshi (Part I)
-
-
-
-## 12. Actions of Kadeshi (Part II)
+## 12. Actions of Kadeshi (Part II) [Not fully translated yet]
 
 
 
@@ -207,7 +209,7 @@ However, what made the Organization heartbreak is that the Alliance refused to a
 
 ## 22. The Return of Bentusi (Part I)
 
-In the battle of all descendants of Progenitors in the galaxy united against the powerful invasion of TMAT, the Taiidani surpassed Hiigarans and the Alliance and became the core force. This is because they have been onlookers during the War of Sibling Rivalry. They had been developing silently and preserving their power; and because they had been keeping away from the international politics, and Queen Scandinale intuitively refused the help of those "Progenitors souls", less electronic lives had infiltrated into Taiidani military and government departments. Thus, after the explosion of "bombs" and "embryos", the Taiidani army had the least "mutinies" in the galaxy.
+In the battle of all descendants of Progenitors in the galaxy united against the powerful invasion of TMAT, the Taiidani surpassed Hiigarans and the Alliance and became the core force. This is because they have been onlookers during the War of Sibling Rivalry. They had been developing silently and preserving their power; and because they had been keeping away from the international politics, and Queen Scandina intuitively refused the help of those "Progenitors souls", less electronic lives had infiltrated into Taiidani military and government departments. Thus, after the explosion of "bombs" and "embryos", the Taiidani army had the least "mutinies" in the galaxy.
 
 In the Bloody Million-Second Battle, the Taiidani were in the bloodiest parts of the battlefield - the perimeter of the Sajuuk and the middle defense line. After decades of endurance and humiliation, the heroism and courage of the ancient Eight-Banner Taiidani Fleets have reappeared in today's Taiidani. The Taiidani had bought much time in the face of the more technologically advanced TMATs. However, human's initiative is not omnipotent, and the defense line of Taiidan was on the edge of collapse. The innermost defense line was established by the remnants of the Organization and the Alliance. If the TMATs broke through here, they could only launch kamikaze attacks.
 
