@@ -123,7 +123,7 @@ Until ALF 60s, the Kadashi had been hiding in the nebula and surviving through r
 
 ## 12. Actions of Kadeshi (Part II) [Not fully translated yet]
 
-
+Since three motherships were destroyed during the return, Hiigaran have been ranked as the first-class rival of Kadashi. When Hiigaran reappeared in front of Kadashi, they were greeted with a fervent attack of blood feud. With the collapse of Vaygr army, Hiigara wanted to take this opportunity to deal with Taiidan, but Scandina used Kadashi as a condition to force Hiigaran to make concessions. Later, the Galaxy Rescue Alliance tried to find new breakthroughs and regained the battlefield initiative, so they focused on the Kadesh Nebula. At this time, the Taiidan declared that they were neutral, and Kadeshi should also not be affected by the war. The Kadash Nebula persisted with the joint support of Taiidan and Hiigara. Even at this critical juncture, Kadeshi were still firing at Hiigaran.
 
 ## 13. Actions of Turanic Raiders
 
